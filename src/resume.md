@@ -1,5 +1,5 @@
 ---
-title: Clayton Kruse
+title: Clayton Charles Kruse
 ---
 ck@clayk.cc | https://claytonkruse.com | (314) 745-2624
 
